@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋🏽Hi there! <br>🦆I'm Dominic Mushayi, a tech-savvy person who has been passionate about computers since the age of six. <br>⚡I enjoy gaming, coding, and watching basketball and rugby games.<br>👨🏽‍💻I love all things digital and am always looking for new challenges to expand my knowledge in the field of technology.
+👋🏽Hi there! <br>🦆I'm Dominic Mushayi, a tech-savvy person who has been passionate about computers since the age of six. <br>⚡I enjoy gaming, coding, and watching basketball and rugby games.<br>👨🏽‍💻I love all things digital and i'm always looking for new challenges to expand my knowledge in the field of technology.
 
 
 ## 🌐 Socials:
